@@ -4,8 +4,8 @@
 
 📍 **Casablanca, Morocco**  
 ✉️ **Email:** [chainmaven@proton.me](mailto:chainmaven@proton.me)  
-💼 **LinkedIn:** [linkedin.com/in/youssefali](https://www.linkedin.com/in/youssef-houmazen-395267150/)  
-🌐 **GitHub:** [github.com/youssefali]([https://github.com/youssefali](https://github.com/recon-cyber))
+💼 **LinkedIn:** [linkedin.com/in/youssefhoumazen](https://www.linkedin.com/in/youssef-houmazen-395267150/)  
+🌐 **GitHub:** [github.com/youssefhoumazen]([https://github.com/youssefhoumazen](https://github.com/recon-cyber))
 
 ---
 
