@@ -75,9 +75,9 @@ Backend Developer with over 6 years of experience specializing in creating robus
 ## Education
 
 **Bachelor of Science in Computer Science**  
-*University of Casablanca*  
-*Casablanca, Morocco*  
-*Graduated: 2015*
+*42 Paris*  
+*Paris, France/Remote*  
+*Graduated: 2017*
 
 ---
 
