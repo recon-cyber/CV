@@ -32,7 +32,7 @@ Backend Developer with over 6 years of experience specializing in creating robus
 ---
 
 ### **Backend Developer**  
-**INC MODD IO**  
+**INC MOD IO**  
 *canada, Vancouver*  
 *June 2020 – December 2022*
 
